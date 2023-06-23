@@ -66,7 +66,9 @@
 
 <br >
 
-I have a deep passion for coding and its potential to shape a better future. This is precisely why I love to do coding, as it enables me to contribute towards creating a brighter tomorrow. 
+I also have a YouTube channel where I share my musical journey. 🎶
+Join me as I explore different songs, styles, and performances.
+Subscribe and be a part of the musical adventure! 🎵
 
 
 
