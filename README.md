@@ -52,7 +52,7 @@
 
 #### Bizness
 - 	📎   [My Resume/CV](https://github.com/ViduminiRathnayaka/ViduminiRathnayaka/blob/main/Vidumini%20Rathnayaka%20.pdf)
-- 📧 ipenywis@gmail.com
+- 📧 viduminiy.rathnayaka@gmail.com
 
 
 #### Profile Visits 
